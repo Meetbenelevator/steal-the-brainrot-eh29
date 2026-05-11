@@ -1,4 +1,4 @@
-#  
+#  Experience steal the brainrot base like never before with elite Script for steal the brainrot base, the #1 Script. Includes custom skins and
 
 
 
